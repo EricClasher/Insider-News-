@@ -8,3 +8,5 @@ JUST IN: Wall Street giant Citadel goes big on $XRP ETFs with $1,700,000 Stake -
 JUST IN: $XRP forecasted to go as high as $1.60 this month, per Kalshi traders.
 
 JUST IN Goldman Sachs sells all Solana and Ripple ETF holdings
+
+JUST IN: 🇮🇷 Iran’s President says under no circumstances will Iran back down from legitimate rights of Iranian people and nation.
