@@ -40,3 +40,5 @@ JUST IN: 🇺🇸 President Trump says the US will likely have to refund $149,00
 JUST IN: US to invest $2 billion into quantum computing companies
 
 JUST IN: 🇮🇷🇺🇸 Senior Iranian official says no final deal has been reached with the US, despite reports.
+
+JUST IN: Ethereum Foundation researchers announce resignations amid ongoing exits
