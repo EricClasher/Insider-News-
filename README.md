@@ -34,3 +34,5 @@ Solana down 70% from all time high
 NEW: Sui launches gasless stablecoin transfers, simplifying global payments infrastructure.
 
 JUST IN: $XRP Ledger surges from top 10 to #4 on RWAdotxyz league table, becoming one of the fastest-growing RWA ecosystems in crypto.
+
+JUST IN: 🇺🇸 President Trump says the US will likely have to refund $149,000,000,000 in tariff revenue.
