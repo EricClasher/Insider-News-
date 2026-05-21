@@ -38,3 +38,5 @@ JUST IN: $XRP Ledger surges from top 10 to #4 on RWAdotxyz league table, becomin
 JUST IN: 🇺🇸 President Trump says the US will likely have to refund $149,000,000,000 in tariff revenue.
 
 JUST IN: US to invest $2 billion into quantum computing companies
+
+JUST IN: 🇮🇷🇺🇸 Senior Iranian official says no final deal has been reached with the US, despite reports.
