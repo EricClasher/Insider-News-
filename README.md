@@ -14,3 +14,5 @@ JUST IN: 🇮🇷 Iran’s President says under no circumstances will Iran back 
 JUST IN: CME Group says its $XRP futures products generated nearly $63,000,000,000 in notional trading volume during their first year.
 
 JUST IN: 🇮🇷 Iran’s crypto stockpile is reportedly worth $7,700,000,000 - Fox News.
+
+JUST IN: 🇮🇷 Iran rebuilding military industrial base faster than expected, already producing drones, according to us intel - CNN.
