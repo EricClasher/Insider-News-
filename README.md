@@ -24,3 +24,9 @@ JUST IN: Jefferies increases $NVDA target price from $275 to $300.
 JUST IN: Bitwise CEO says "Hyperliquid & Solana are the leaders of onchain capital markets"
 
 JUST IN: 🇷🇺🇨🇳 Vladimir Putin shared with Xi Jinping idea of transporting and storing Iranian enriched uranium in Russia.
+
+Hyperliquid hits a new all time high
+
+Bitcoin down 38% from all time high
+Ethereum down 56% from all time high
+Solana down 70% from all time high
