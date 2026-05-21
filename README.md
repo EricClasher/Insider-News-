@@ -16,3 +16,5 @@ JUST IN: CME Group says its $XRP futures products generated nearly $63,000,000,0
 JUST IN: 🇮🇷 Iran’s crypto stockpile is reportedly worth $7,700,000,000 - Fox News.
 
 JUST IN: 🇮🇷 Iran rebuilding military industrial base faster than expected, already producing drones, according to us intel - CNN.
+
+JUST IN: $HYPE forecasted to go as high as $62 this month, per Kalshi traders.
