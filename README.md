@@ -20,3 +20,5 @@ JUST IN: 🇮🇷 Iran rebuilding military industrial base faster than expected,
 JUST IN: $HYPE forecasted to go as high as $62 this month, per Kalshi traders.
 
 JUST IN: Jefferies increases $NVDA target price from $275 to $300.
+
+JUST IN: Bitwise CEO says "Hyperliquid & Solana are the leaders of onchain capital markets"
