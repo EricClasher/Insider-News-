@@ -30,3 +30,5 @@ Hyperliquid hits a new all time high
 Bitcoin down 38% from all time high
 Ethereum down 56% from all time high
 Solana down 70% from all time high
+
+NEW: Sui launches gasless stablecoin transfers, simplifying global payments infrastructure.
