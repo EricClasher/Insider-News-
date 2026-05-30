@@ -1,5 +1,6 @@
 # Insider-News-
 🤫
+JUST IN: Iran says 20 ships passed through the Strait of Hormuz in the last 24 hours
 
 JUST IN: Fed to inject $6,576,000,000 into the market tomorrow.
 
